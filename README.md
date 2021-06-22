@@ -2,4 +2,4 @@
 - 👀 I’m interested in coding and networking. 
 - 🌱 I’m currently learning python 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me thorugh discord - ViridescentMarine
+- 📫 Reach me thorugh discord - ViridescentMarine (OR) email @ marineneer3@gmail.com
